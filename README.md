@@ -10,6 +10,6 @@ Here are some ideas to get you started:
 - 🤔 I’m looking for help with time
 - 💬 Ask me about Development
 - 📫 How to reach me: contato@carloslaurentinodev.com
-- 😄 Pronouns: Ele/Dele
-- ⚡ Fun fact: ...
+- 😄 Pronouns: He/His
+- ⚡ Fun fact: Trying to finish One Piece(em 2030)
 
